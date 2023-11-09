@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chashii
-- 💍 I'm currently enganged to my previous chachi/clie
+- 💍 I'm currently enganged to my precious chachi/clie
 - 👀 I’m interested in software development/engineering
 - 🌱 I’m currently learning any programming language
 
